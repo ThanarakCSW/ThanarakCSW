@@ -6,7 +6,7 @@ Software Engineer Student @RMUTL
 
 \- I study at RajamangalaUniversity of Technology Lanna Chiang Mai
 
-\- I'm a first-year student in the Faculty of Software Engineer
+\- I'm a student in the Faculty of Software Engineer
 
 * 🌍  I'm based in Lamphun
 * ✉️  You can contact me at [thanaruk.pp@gmail.com](mailto:thanaruk.pp@gmail.com)
